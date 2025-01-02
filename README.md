@@ -9,3 +9,7 @@
 https://www.haxball.com/play?c=SU2dE4JjYB8
 
 https://www.haxball.com/play?c=B9heWFJw2NU
+
+https://www.haxball.com/play?c=dXcaqmMtW3Q
+
+https://www.haxball.com/play?c=Xm_eRQZfTiw
